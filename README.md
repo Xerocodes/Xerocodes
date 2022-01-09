@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Xerocodes
+- 👀 I’m interested in AI programming
+- 🌱 I’m currently learning R
+- 📫 u can reach me on discord @Xero#6367
