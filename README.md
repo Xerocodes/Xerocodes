@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @Xerocodes
-- 👀 I’m interested in AI programming
-- 🌱 I’m currently learning R
+- 👀 I’m interested in Making Websites,Games and Apps
+- 🌱 I’m currently learning nothing :)
 - 📫 u can reach me on discord @Xero#6367
